@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Data Analyst
 - 💞️ I’m looking to collaborate someone
-- 📫 How to reach me @621vishaaa_l
+- 📫 How to reach me @621vishaaa_l  INSTAGRAM
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
